@@ -49,7 +49,7 @@ Acredito na organização e no foco para o crescimento profissional. Busco aplic
 ---
 
 ### 📫 Vamos nos conectar?
-- [LinkedIn](https://www.linkedin.com/in/alisson-bezerra-de-brito-3502171a8/)
+- [LinkedIn] https://www.linkedin.com/in/alisson-bezerra-de-brito-3502171a8
 - 📧 alisson.brito9919@gmail.com
 
 ---
